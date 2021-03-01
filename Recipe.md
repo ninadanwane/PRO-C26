@@ -1,0 +1,1 @@
+Pour sufficient amounts of water in a glass. Add 2 and a half teaspoons sugar, half teaspoon salt, and crush 2 lime in the glass. 
